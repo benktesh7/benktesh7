@@ -1,4 +1,4 @@
-👋 Hi, I’m @benktesh7
+👋 Hi, I’m Benktesh
 ![butterfly](https://github.com/benktesh7/benktesh7/assets/131708006/6a146912-7a66-47a1-b86e-92b18ac18702)
 
 
